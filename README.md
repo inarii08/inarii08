@@ -5,7 +5,7 @@
  　˚   　𑣲 　) 　 　   ⋋   　 　 ★  　 　 ⸝⸝ 　 　  𝓝  ;   　 　 ---  　 　 .    　  ͎    　 　 ˚ 　 　  .   　 　  ° 　 　 ⊹
 
 
- 　+**8**teen **✦﹐―― s**he
+ 　+**8**teen **✦﹐―― s**he / her
 
   Hello and welcome to my Github introdction!
 
