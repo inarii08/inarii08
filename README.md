@@ -1,4 +1,4 @@
-# Nara's Git Introduction  ── ⋆ ꩜ !
+# 𐔌 @Nara's Git Introduction  ── ⋆ ꩜ !
 
 ## 1st DAM VIOD student
 
